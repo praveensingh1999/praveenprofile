@@ -4,4 +4,4 @@
 
 💞️ I’m looking to collaborate on SOFTWARE DEVELOPMENT
 
-📫 How to reach me praveen@gmail.com and 6283712838
+📫 How to reach me praveen969500@gmail.com and 6283712838
