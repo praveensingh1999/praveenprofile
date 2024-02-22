@@ -6,6 +6,6 @@
 
 💞️ I’m looking to collaborate on SOFTWARE DEVELOPMENT
 
-📫 How to reach me praveen969500@gmail.com and 9695003121
+📫 How to reach me praveen969500@gmail.com 
 
 
